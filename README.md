@@ -1,1 +1,2 @@
 # Introduction
+I’m a Grade 12 student at an international high school, where I’ve consistently achieved strong academic results. In addition to my studies, I’m passionate about sports, particularly golf. I’ve had the opportunity to compete in various tournaments, earning several awards along the way. Balancing academics and athletics has taught me discipline and time management, and I look forward to continuing to excel in both areas as I prepare for the future.
